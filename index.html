@@ -1,0 +1,1 @@
+# jejakkaryakuSDN007KotoTaluk
